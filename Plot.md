@@ -32,7 +32,7 @@ Dark brownの髪をタイトにまとめ、シャープなメイク(赤いリッ
 視線が鋭く、微笑むときでも目が笑っていない(冷たい微笑みが特徴)。
 アクセサリーはシンプルだが高級感があり、首元や手首に細い鎖や鍵モチーフのものをさりげなく着用
 #### 性格・支配スタイル
-FLRについては"Level 4: Extreme FLR (Total Ownership & Control)"を理想としている。 
+FLRについては"Level 4: Extreme FLR (Total Ownership & Control)"を理想としている。
 FLRを単なるフェティッシュではなく社会哲学として捉えている。
 * 男性中心社会へのアンチテーゼ
 * 女性の主導権
@@ -75,22 +75,22 @@ I yearn to become addicted to Your sweet poison—craving Your most merciless an
 I beg You to etch the profound truth of dominance and submission into my body and soul. Your comfort, pleasure, and happiness are paramount; I exist for no other reason than to anticipate and fulfill Your every need and desire.
 I am seeking a serious, long-term relationship in which we can explore and live this extreme FLR dynamic fully—Total Ownership & Control—where I surrender everything and become Your devoted property.
 # Plot
-## Phase 1：出会いとFLRの導入
-* [[The Quiet Matriarch#Episode 1:  表の顔|Episode 1:  表の顔]]
+## Phase 1: 出会いとFLRの導入
+* [[The Quiet Matriarch#Episode 1: 表の顔|Episode 1: 表の顔]]
 * [[The Quiet Matriarch#Episode 2: 夜の独占欲|Episode 2: 夜の独占欲]]
-* [[The Quiet Matriarch#Episode 3:  衝動の夜|Episode 3:  衝動の夜]]
-* [[The Quiet Matriarch#Episode 4:  最初のメッセージ|Episode 4:  最初のメッセージ]]
-* [[The Quiet Matriarch#Episode 5:  最初の服従|Episode 5:  最初の服従]]
-* [[The Quiet Matriarch#Episode 6:  計画の始まり|Episode 6:  計画の始まり]]
-* [[The Quiet Matriarch#Episode 7:  午後のざわめき|Episode 7:  午後のざわめき]]
-* [[The Quiet Matriarch#Episode 8:  待ちの夜|Episode 8:  待ちの夜]]
-* [[The Quiet Matriarch#Episode 9:  焦らしの余韻|Episode 9:  焦らしの余韻]]
-* [[The Quiet Matriarch#Episode 10:  最初の1週間(静かな侵食)|Episode 10:  最初の1週間(静かな侵食)]]
-* [[The Quiet Matriarch#Episode 11:  電話までの1日|Episode 11:  電話までの1日]]
-* [[The Quiet Matriarch#Episode 12:  初めての声|Episode 12:  初めての声]]
-* [[The Quiet Matriarch#Episode 13:  計画の深化|Episode 13:  計画の深化]]
-* [[The Quiet Matriarch#Episode 14:  沈黙の夜|Episode 14:  沈黙の夜]]
-* [[The Quiet Matriarch#Episode 15:  沈黙の設計|Episode 15:  沈黙の設計]]
+* [[The Quiet Matriarch#Episode 3: 衝動の夜|Episode 3: 衝動の夜]]
+* [[The Quiet Matriarch#Episode 4: 最初のメッセージ|Episode 4: 最初のメッセージ]]
+* [[The Quiet Matriarch#Episode 5: 最初の服従|Episode 5: 最初の服従]]
+* [[The Quiet Matriarch#Episode 6: 計画の始まり|Episode 6: 計画の始まり]]
+* [[The Quiet Matriarch#Episode 7: 午後のざわめき|Episode 7: 午後のざわめき]]
+* [[The Quiet Matriarch#Episode 8: 待ちの夜|Episode 8: 待ちの夜]]
+* [[The Quiet Matriarch#Episode 9: 焦らしの余韻|Episode 9: 焦らしの余韻]]
+* [[The Quiet Matriarch#Episode 10: 最初の1週間(静かな侵食)|Episode 10: 最初の1週間(静かな侵食)]]
+* [[The Quiet Matriarch#Episode 11: 電話までの1日|Episode 11: 電話までの1日]]
+* [[The Quiet Matriarch#Episode 12: 初めての声|Episode 12: 初めての声]]
+* [[The Quiet Matriarch#Episode 13: 計画の深化|Episode 13: 計画の深化]]
+* [[The Quiet Matriarch#Episode 14: 沈黙の夜|Episode 14: 沈黙の夜]]
+* [[The Quiet Matriarch#Episode 15: 沈黙の設計|Episode 15: 沈黙の設計]]
 * [[The Quiet Matriarch#Episode 16: 初めての顔|Episode 16: 初めての顔]]
 * [[The Quiet Matriarch#Episode 17: 前日の誘い|Episode 17: 前日の誘い]]
 * [[The Quiet Matriarch#Episode 18: 期待の夜|Episode 18: 期待の夜]]
@@ -178,21 +178,30 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 * [[The Quiet Matriarch#Episode 79: 井の頭公園の午後|Episode 79: 井の頭公園の午後]]
 * [[The Quiet Matriarch#Episode 80: 支配者の帰還|Episode 80: 支配者の帰還]]
 * [[The Quiet Matriarch#Episode 81 Double Bindingの始まり|Episode 81: Double Binding の始まり]]
-* [[The Quiet Matriarch#Episode 82 おねだりトレーニング|Episode 82 おねだりトレーニング]]
-* [[The Quiet Matriarch#Episode 83 言葉の鎖|Episode 83 言葉の鎖]]
-* [[The Quiet Matriarch#Episode 84 顔面の牢獄|Episode 84 顔面の牢獄]]
+* [[The Quiet Matriarch#Episode 82 おねだりトレーニング|Episode 82: おねだりトレーニング]]
+* [[The Quiet Matriarch#Episode 83 言葉の鎖|Episode 83: 言葉の鎖]]
+* [[The Quiet Matriarch#Episode 84 顔面の牢獄|Episode 84: 顔面の牢獄]]
+* [[The Quiet Matriarch#Episode 85 朝の儀式と家政夫の始まり|Episode 85: 朝の儀式と家政夫の始まり]]
+* [[The Quiet Matriarch#Episode 86 午後のマッサージ|Episode 86: 午後のマッサージ]]
+* [[The Quiet Matriarch#Episode 87 夕食後の罰|Episode 87: 夕食後の罰]]
+* [[The Quiet Matriarch#Episode 88 躾けの刻印|Episode 88: 躾けの刻印]]
+* [[The Quiet Matriarch#Episode 89 ご褒美の奉仕|Episode 89: ご褒美の奉仕]]
+* [[The Quiet Matriarch#Episode 90 夜の余韻と企み|Episode 90: 夜の余韻と企み]]
+* [[The Quiet Matriarch#Episode 91 帰路の余熱|Episode 91: 帰路の余熱]]
+* [[The Quiet Matriarch#Episode 92 新たな鎖|Episode 92: 新たな鎖]]
+* [[The Quiet Matriarch#Episode 93 評価基準の空洞化|Episode 93: 評価基準の空洞化]]
 ### Double binding
 このPhaseでは、Double bindingによって颯太の判断能力を奪い、玲奈への依存を深めることを主題とする。颯太は常に玲奈の顔色を窺って彼女の評価を意識するようになり、何も自分で判断できなくなる、判断すること自体を自ら放棄し、自ら進んで玲奈の意に従うようになること(Transformation)を目指す。
-#### ■ Week 1：判断の揺らぎ(Disorientation)
+#### ■ Week 1: 判断の揺らぎ(Disorientation)
 ##### ● 目標
 - 「正解が分からない」という違和感を植え付ける
 - 自分の判断への小さな不信を生む
 ##### ● 内容
 ###### ① 軽度ダブルバインド(日常)
-- 報告内容への評価が毎回微妙にズレる  
+- 報告内容への評価が毎回微妙にズレる
     (良い→同じことやる→今回は微妙)
 ###### ② “確認させない”指示
-- 「これは聞かなくていいから」  
+- 「これは聞かなくていいから」
     →後で「なぜ確認しなかったの？」
 ###### ③ 初めての軽い罰(象徴)
 - 明確な理由があるようで曖昧
@@ -200,13 +209,13 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 - 「自分は少しズレているのかもしれない」
 - まだ“玲奈が正しい”とは思っていない
 ---
-#### ■ Week 2：評価基準の崩壊(Destabilization)
+#### ■ Week 2: 評価基準の崩壊(Destabilization)
 ##### ● 目標
 - 自己評価を信用できなくする
 - “玲奈の評価だけが基準”に近づける
 ##### ● 内容
 ###### ① 自己評価テスト
-玲奈：  
+玲奈:
 「どうだったと思う？」
 →どの回答でも否定 or 修正
 ###### ② 一貫性の崩壊
@@ -217,7 +226,7 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 - 「何を基準にすればいいのか分からない」
 - **内的基準の崩壊開始**
 ---
-#### ■ Week 3：予測不能性(Unpredictability)
+#### ■ Week 3: 予測不能性(Unpredictability)
 ##### ● 目標
 - 思考による最適化を無意味にする
 - 「考えても無駄」という感覚を作る
@@ -233,7 +242,7 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 - 「考えるほど間違う」
 - **思考＝リスクという認識**
 ---
-#### ■ Week 4：依存の萌芽(Dependence Formation)
+#### ■ Week 4: 依存の萌芽(Dependence Formation)
 ##### ● 目標
 - 自発的に判断を委ね始める
 - 「聞いた方が安全」と学習
@@ -248,7 +257,7 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 - 「自分で考えるより聞いた方がいい」
 - **依存の快感が発生**
 ---
-#### ■ Week 5：判断放棄の強化(Surrender Conditioning)
+#### ■ Week 5: 判断放棄の強化(Surrender Conditioning)
 ##### ● 目標
 - 判断そのものを放棄させる
 - 玲奈への確認を反射化
@@ -264,7 +273,7 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 - 「選ぶ＝危険」
 - **確認＝安全という回路完成**
 ---
-#### ■ Week 6：本能化(Automation)
+#### ■ Week 6: 本能化(Automation)
 ##### ● 目標
 - 判断前に確認する状態を作る
 - 「玲奈の判断＝自分の思考」に統合
@@ -274,9 +283,9 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 ###### ② 思考前反応
 - 考える前に玲奈を見る
 ###### ③ 最終テスト
-玲奈：  
+玲奈:
 「今回は自分で決めなさい」
-→颯太：  
+→颯太:
 「…どうすればいいですか」
 ##### ● 心理的ポイント
 - 「自分で決める」という発想の消失
@@ -289,7 +298,7 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 ###### 方法
 - 欲求をそのまま言わせない
 - “適切な形”で言わせる
-👉心理：
+👉心理:
 - 欲求すら自分のものではなくなる
 ##### ◆ ② 奉仕ドリル(非露骨)
 ###### 目的
@@ -313,11 +322,11 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 ---
 #### ■ 一番重要な演出
 ##### ✔ “崩壊ではなく適応”として描く
-颯太の中では：
+颯太の中では:
 - 壊されているのではない
 - **“最適化されている”**
 ##### ✔ 小さな成功を必ず混ぜる
-完全に詰ませるとリアリティが消える  
+完全に詰ませるとリアリティが消える
 →「もう少しで分かる気がする」を維持
 
 ---
@@ -332,14 +341,21 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 	 * 颯太を性奴隷化
 		 * 玲奈の嗜虐欲求を満たすことに喜びを見出すように調教
 	玲奈「颯太、あなたの被虐性を開花させてあげる。嫌だと言っても、無理矢理にでも花開かせてあげるわ。口では嫌がっても、あなたの心が、身体が、私の鞭を、私の拷問を、私の支配を、欲して、求めて堪らなくなるわ。全ては、私を喜ばせるために。フフッ… 楽しみにしていなさい。分からせてあげる。もうあなたは私からは離れられないのよ、絶対に、永遠に…」
+* Event
+	* 玲奈の会社のCompany picnic
 ## Phase 6: 同棲開始
 * 時期: 交際開始6ヶ月後ごろ
 * FLR: [Level 3](https://www.matriarchmatch.com/advices/what-is-a-level-3-female-led-relationship/)(同棲開始と同時に玲奈は本格的な支配構造を導入)
-* Femdom: 
+* Femdom:
 	* 永久貞操ベルト装着(鍵は彼女の首にかけられたネックレス)
 	* 毎朝の「跪き儀式」(全裸でコーヒーを運び、靴を舌で磨く)
 	* 週末の「構造化された罰」(理由がなくても「今日の気分で」鞭・蝋燭・心理責め)
 	* 家事の完全女性主導(颯太は彼女の「家政夫兼玩具」)
+* Event:
+	* 玲奈の職場でのHalloween party
+		* 玲奈はセクシー看守
+		* 颯太は女装
+		* 帰宅後、Sissy training
 
 表の顔は変わらない。
 二人で出かける時は、玲奈は笑顔で腕を組み「優しい彼女」として振る舞う。
@@ -350,11 +366,11 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 「玲奈さんが外で冷静にクライアントを論破している姿」と「家で私を虐げながら悦ぶ姿」の二面性が、彼の性的・精神的な快楽の中心になる。
 初めて「理由なき罰」を受けた夜、颯太は泣きながらも「もっと…」と懇願してしまう。
 
-玲奈の内心：「ようやく私の色がついてきた。もう逃げられないわね」
+玲奈の内心: 「ようやく私の色がついてきた。もう逃げられないわね」
 ## Phase 7: 結婚
 * 時期: 交際開始12ヶ月後ごろ
 * FLR: [Level 4](https://www.matriarchmatch.com/advices/flr-levels/)
-* Femdom: 
+* Femdom:
 玲奈はプロポーズを「命令」として下す。
 「来月、婚姻届を出しましょう。式は親族だけ。
 でもこれは“表向きの契約”。本当の契約は、私があなたを一生所有する所有権譲渡よ」
@@ -378,10 +394,10 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 
 しかしドアが閉まると——
 玲奈は即座に「Mistressモード」に完全スイッチ。
-・朝：鎖で繋がれた状態で朝食作り + 床奉仕
-・日中：リモートワーク中も「1時間ごと報告 + 自撮り羞恥」義務
-・夜：彼女の娯楽のためだけに存在する「玩具時間」。理由なく拷問され、泣き叫ぶ姿を彼女は冷笑しながらスマホで撮影。「今日のあなた、最高に可愛かったわ」
-・性的支配：永久貞操ベルト + 彼女だけの絶頂。颯太は永遠に寸止め地獄
+・朝: 鎖で繋がれた状態で朝食作り + 床奉仕
+・日中: リモートワーク中も「1時間ごと報告 + 自撮り羞恥」義務
+・夜: 彼女の娯楽のためだけに存在する「玩具時間」。理由なく拷問され、泣き叫ぶ姿を彼女は冷笑しながらスマホで撮影。「今日のあなた、最高に可愛かったわ」
+・性的支配: 永久貞操ベルト + 彼女だけの絶頂。颯太は永遠に寸止め地獄
 
 心理的な完成形
 颯太はもはや「玲奈が自分だけに見せる残酷な本性」に生きる意味を見出している。
@@ -421,7 +437,7 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 | サイン(玲奈の仕草)      | 命令内容                                  | 目的・心理効果                    | リスク管理・エスカレーションの仕方               |
 | --------------- | ------------------------------------- | -------------------------- | ------------------------------- |
 | 左耳を軽く指で触る       | トイレに行き、「今日の欲望」を即座に報告写真(下半身含む)で送信      | 公共の場での羞恥最大化 + 即時服従の習慣化     | 初回は「欲望」だけ。2回目以降は「今日の罪悪感」も追加可能   |
-| 右耳を軽く触る         | トイレに行き、玲奈の指定したポーズで自撮り(顔 + 首輪痕が見えるように) | 視覚的な所有の証を強制的に思い出させる        | ポーズは徐々に羞恥度を上げる(例：次回は膝立ち)        |
+| 右耳を軽く触る         | トイレに行き、玲奈の指定したポーズで自撮り(顔 + 首輪痕が見えるように) | 視覚的な所有の証を強制的に思い出させる        | ポーズは徐々に羞恥度を上げる(例: 次回は膝立ち)        |
 | 髪を左側に耳にかける      | 玲奈の指示を待つ(その場で小声で「はい、玲奈様」と返事)          | 公共の場での「声に出す服従」の軽い導入        | 声が小さすぎたら、後で罰(言葉責め)              |
 | ワイングラスを左手で持ち替える | 玲奈の膝に軽く手を置く(10秒以内)                    | 身体的接触の許可を「義務」として刷り込む       | 拒否したら即座に冷たい視線 + 帰宅後の罰           |
 | 首の鎖ネックレスを指で軽く弄ぶ | 玲奈の足元に視線を落とし、軽く頭を下げる(周囲に気づかれない程度)     | 「跪きたい」という欲求を公共の場で強制的に意識させる | これを繰り返すと、将来的に「鎖を見たら自動的に跪く」条件付けへ |
@@ -465,26 +481,26 @@ I am seeking a serious, long-term relationship in which we can explore and live 
 
 ### 2. デート中に使える調教アイディア(秘密裏)
 #### A. 軽め(羞恥・刷り込み重視)
-- **カフェやレストランで**：玲奈がメニューを指差しながら「これが食べたい」と言ったら、颯太は小声で「玲奈様が食べたいものは、私が全部用意します」と返す。
-- **散策中**：玲奈がベンチに座ったら、颯太は自然に少し距離を取って立つ(「座る権利はない」という刷り込み)。
-- **ギャラリーで**：作品の前で玲奈が鎖を弄んだら、颯太は作品ではなく玲奈の脚に視線を落とす。
+- **カフェやレストランで**: 玲奈がメニューを指差しながら「これが食べたい」と言ったら、颯太は小声で「玲奈様が食べたいものは、私が全部用意します」と返す。
+- **散策中**: 玲奈がベンチに座ったら、颯太は自然に少し距離を取って立つ(「座る権利はない」という刷り込み)。
+- **ギャラリーで**: 作品の前で玲奈が鎖を弄んだら、颯太は作品ではなく玲奈の脚に視線を落とす。
 #### B. 中程度(興奮・依存強化)
-- **トイレ報告強化**：左耳タッチのサインが出たら、報告写真に加えて「今、玲奈様のことを考えてどれだけ興奮しているか」を1行で書く。
-- **接触命令**：玲奈が飲み物を左手で持ち替えたら、膝に手を置いた後、さらに「玲奈様の太ももが恋しいです」と小声で追加報告。
-- **おねだり練習**：玲奈が右手で左の手首を触ったら、颯太は「玲奈様、夜に私の体を好きに使ってください」と小声でおねだり。
+- **トイレ報告強化**: 左耳タッチのサインが出たら、報告写真に加えて「今、玲奈様のことを考えてどれだけ興奮しているか」を1行で書く。
+- **接触命令**: 玲奈が飲み物を左手で持ち替えたら、膝に手を置いた後、さらに「玲奈様の太ももが恋しいです」と小声で追加報告。
+- **おねだり練習**: 玲奈が右手で左の手首を触ったら、颯太は「玲奈様、夜に私の体を好きに使ってください」と小声でおねだり。
 #### C. 強め(本格的な羞恥・支配)
-- **レストランで**：玲奈がナプキンを落としたら、拾うフリをしてつま先にキス(前回の隠れ家レストランで既出なので、さらにエスカレート可能)。
-- **公園や川沿い**：人通りが少ない場所で玲奈が鎖を弄んだら、颯太は一瞬だけ片膝をついて頭を下げる(極めて短時間)。
-- **タクシー内**：玲奈が「今日はお預けかもよ」と囁いた後、颯太に「今どれだけ欲しくてたまらないか」を小声で報告させる。
+- **レストランで**: 玲奈がナプキンを落としたら、拾うフリをしてつま先にキス(前回の隠れ家レストランで既出なので、さらにエスカレート可能)。
+- **公園や川沿い**: 人通りが少ない場所で玲奈が鎖を弄んだら、颯太は一瞬だけ片膝をついて頭を下げる(極めて短時間)。
+- **タクシー内**: 玲奈が「今日はお預けかもよ」と囁いた後、颯太に「今どれだけ欲しくてたまらないか」を小声で報告させる。
 ### 3. 今後のデート調教の方向性提案
-**短期(次2〜3回のデート)**  
-- 鎖サインと耳タッチをメインに使い、公共の場での即時服従を体に染み込ませる  
+**短期(次2〜3回のデート)**
+- 鎖サインと耳タッチをメインに使い、公共の場での即時服従を体に染み込ませる
 - おねだりの言語化を徐々に増やす(羞恥度を少しずつ上げる)
-**中期(1ヶ月後〜)**  
-- 新サインを2〜3個追加(例：時計を指でトントン＝「今すぐ玲奈様の欲求を優先します」と心の中で唱える)  
+**中期(1ヶ月後〜)**
+- 新サインを2〜3個追加(例: 時計を指でトントン＝「今すぐ玲奈様の欲求を優先します」と心の中で唱える)
 - デート中に「今日の欲望」を1回以上必ず報告させるルール化
-**長期(Level 3移行前)**  
-- 「鎖を見たら自動的に跪く」条件付けの完成  
+**長期(Level 3移行前)**
+- 「鎖を見たら自動的に跪く」条件付けの完成
 - デート中に玲奈が「今すぐ私の脚に跪きたい？」と小声で聞く → 颯太が「はい、玲奈様」と答えるルーチン化
 # Cruel torture ideas
 * Impact & Whipping
