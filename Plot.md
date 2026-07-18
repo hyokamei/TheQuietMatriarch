@@ -595,3 +595,40 @@ Phase III: The Final Gauntlet
 13. Internal Overstimulation: While your upper body is being whipped, an internal vibrator is set to its highest, most chaotic setting, leaving you nowhere to "hide" from the sensation.
 14. Mirror Mandated Humiliation: You are forced to watch yourself in a full-length mirror while she points out every tear and every red mark, mocking your lack of composure.
 15. The "Safety Note" Tease: She places your "safeword" or the key to your restraints just out of reach. You have to endure a final, 10-minute "blitz" of all the above tools to "earn" your release.
+# 言葉責め
+## 縛り
+首輪をつけながら、勃起したペニスを踏みつけながら、顔を近づけて耳元に吹きこむように
+"ほ〜ら もうこんなにしちゃって、楽しみねぇ。期待通りたっぷり苛め抜いてあげようねぇ。ギチギチに縛り上げて、ミミズ腫れになるまで鞭打って、気絶するほど苛め抜いて、奴隷の作法を仕込んでやるわ"
+## 乳首攻め
+乳首を優しく愛撫しながら、"どう? 気持ちいい?"
+"はい"
+爪を立ててキツく乳首をひねりあげながら"じゃぁ、これは?"
+## 鞭
+鞭打ちを始める前に、恐怖を煽るように床を一発空打ちして、一本鞭を構えながら
+"もう私の鞭なしじゃ生きられない身体にしてあげる。"
+"怖い? そんな顔されたら、もっと鞭打ちたくなるじゃないの。"
+一本鞭を連打しながら
+"それそれ、お前のその悲鳴が聞きたかったの"
+"おら、これが欲しかったんだろう?"
+"ねぇ、こういう事をして欲しかったんじゃないの? ほら!! もっと嬉しそうにしなさいよ"
+"ほら、もっと鞭をくださいっておねだりしてみな! もっとメチャクチャにしてくださいって!"
+"ほら、もっとお泣き!"
+"そうよ、もっと良い声出すのよ! もっといっぱい悲鳴を上げるのよ! さぁ !私のこと喜ばせてちょうだい!"
+## 顔面騎乗
+"ここにお顔を埋めたいんでしょ、お前"
+## その他
+"どうなのよ、お前。もうたまんないでしょ"
+"好きなんだろ、お前。こうやって女にいじめられるのが。"
+"これからたっぷりいたぶってやるわよ!"
+"ツラいの? でも一切手加減はしないわよ。分かった?"
+"次はもっとキツいお仕置きをあげる"
+このイヤラシイ腐れチンポに鞭をビシビシいただけるように、もっと足を広げてケツを突き出すんでしょ!!
+お望みどおりたっぷり懺悔させてあげるのよ
+ココロもカラダも丸裸になって、羞恥心もプライドも捨てなさい
+お前もこんなふうに私にご奉仕したいんだろ? じゃぁホラ、私のオマンコが熱くなるほどいやらしく懺悔してごらん
+ほ〜ら もうこんなに発情させちゃって、期待通りたっぷり苛め抜いてなぶり殺しにしてやろうね
+今日もたっぷり泣かせてやるわよ
+さぁ、今日もたっぷりお仕置きしてあげようね
+それじゃぁお望みどおり両方の穴を便器に使ってあげるわよ
+それそれ、お前のその悲鳴が聞きたかったの
+この特大ディルドーで腰が抜けるまで泣かせてやるは
